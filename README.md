@@ -2,9 +2,9 @@
 - 👀 I’m interested in ...sports
 - 🌱 I’m currently learning ...IMCA
 - 💞️ I’m looking to collaborate on ...coding
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 📫 How to reach me ...appuv7030@gmail.com
+- 😄 Pronouns: ...he
+- ⚡ Fun fact: ...Single yet
 
 <!---
 vk-24-2006/vk-24-2006 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
