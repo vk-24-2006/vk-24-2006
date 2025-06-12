@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...sports
 - 🌱 I’m currently learning ...IMCA
 - 💞️ I’m looking to collaborate on ...coding
-- 📫 How to reach me ...appuv7030@gmail.com
+- 📫 How to reach me ...vivek.krishnan2006@gmail.com
 - 😄 Pronouns: ...he
 - ⚡ Fun fact: ...Single yet
 
